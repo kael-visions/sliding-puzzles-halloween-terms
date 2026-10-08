@@ -1,6 +1,6 @@
 # Sliding Puzzles: Halloween – Terms & Conditions
 
-Official Terms & Conditions for the **Sliding Puzzles: Halloween** mobile app by Kael Visions.
+Official Terms & Conditions for the **Sliding Puzzles: Halloween** mobile game by Kael Visions.
 
 - **Last updated:** October 2026
 - **Contact:** kael.visions@gmail.com
